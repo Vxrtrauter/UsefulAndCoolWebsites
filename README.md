@@ -1,5 +1,6 @@
 # UsefulAndCoolWebsites
 A collection of useful and cool websites.
+For ethical use only.
 
 
 ## List
